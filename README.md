@@ -1,5 +1,9 @@
-## Hi there 👋
+## Hi!
 
+No matter who you are...
+## Let go of striving for fame and rivalry for now, and embrace what is yours. 
+## Good things will come🥰🥰
+ 
 <!--
 **fluffyTighnari/fluffyTighnari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
